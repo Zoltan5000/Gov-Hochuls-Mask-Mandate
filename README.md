@@ -1,1 +1,1 @@
-#Gov.Hochul'S Mask Mandate 
+# Gov. Hochul's Mask Mandate
